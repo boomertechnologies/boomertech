@@ -1,2 +1,0 @@
-# boomertech
-BOOMER TECH 
